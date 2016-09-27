@@ -13,4 +13,4 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1.Jana Harvanova
-2.
+2. Sabina Fackovcova
